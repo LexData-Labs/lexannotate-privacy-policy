@@ -1,1 +1,0 @@
-# lexannotate-privacy-policy
